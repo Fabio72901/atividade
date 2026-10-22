@@ -1,2 +1,0 @@
-# atividade
-atividade curso
